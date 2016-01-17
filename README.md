@@ -1,4 +1,4 @@
-# COP Sermons
+# Cathedral of Praise Church Sermons
 
 Just my notes during services. 
 
