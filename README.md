@@ -9,4 +9,3 @@ Either the speaker talked too fast, or I went deaf or my mind flew for a moment 
 
 - WOG - Word of God
 - HS - Holy Spirit
-- Ptr. - Pastor
