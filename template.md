@@ -1,4 +1,4 @@
-# [January 1, 2016] - COP Manila
+# January 1, 2016 - COP Manila
 
 [Sermon cast]()
 
